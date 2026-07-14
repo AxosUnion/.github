@@ -1,1 +1,1 @@
-We are the _Axos Union_, a long line of nations on the videogame [https://minecraft.wiki/w/Minecraft](Minecraft)
+We are the _Axos Union_, a long line of nations in the videogame [Minecraft](https://minecraft.wiki/w/Minecraft). We are relatively well-known for our sophistocation and technological advancments. It was founded on the 15th of June 2025 by Axos Akulonni-Katra, and since then has come a long way. GitHub is a major game-changer, and has sustained it for a long time, giving it the infrastructure to thrive.
